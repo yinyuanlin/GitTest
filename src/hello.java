@@ -4,6 +4,7 @@
 aaaaaaaaaaaaaaaaaaaaa
 bbbbbbbbbbbbbbbbbbbbb
 
+fuck
 test
-²âÊÔ
-Ö÷¸É
+ï¿½ï¿½ï¿½ï¿½
+ï¿½ï¿½ï¿½ï¿½
